@@ -1,0 +1,1 @@
+A toaster that apologizes in a different accent every morning, so burnt toast feels like a cultural exchange instead of a personal failure.
