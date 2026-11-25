@@ -1,1 +1,1 @@
-A toaster that apologizes in a different accent every morning, so burnt toast feels like a cultural exchange instead of a personal failure.
+A fridge that judges your late-night snacking out loud, so the leftovers finally have someone to answer to at midnight.
